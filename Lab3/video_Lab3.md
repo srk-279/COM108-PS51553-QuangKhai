@@ -1,1 +1,1 @@
-Video bai 1, 2, 3, 4 Lab3:
+- Video bai 1, 2, 3, 4 Lab3:https://youtu.be/sHfsYG_XczQ
